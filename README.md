@@ -21,3 +21,6 @@ silakan tuliskan langkah-langkah disertai screenshotnya
 >hasil
 ![Screenshot (61)](https://user-images.githubusercontent.com/46735563/55854081-cb400e80-5b8d-11e9-9e5e-4729548bb470.png)
 
+TERIMA KASIH
+
+MOHON MAAF ATAS KETERLAMBATANYA
